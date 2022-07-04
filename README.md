@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Remilkaa.github.io/rsschool-cv/cv
